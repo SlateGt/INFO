@@ -1,1 +1,1 @@
-# INFO
+Hello, I am Slate, I'm 15 and a half years old, my real name is Oliver Parker, and I am currently learning C#, good at Blender with over 3 years of experience and good at video editing (DaVinci&Capcut)
